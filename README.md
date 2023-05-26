@@ -1,0 +1,1 @@
+# megascatterbomb-tf2-cheater-database
